@@ -1,0 +1,1 @@
+O curso está bacana ainda, quero ver até onde eu consigo chegar nele
