@@ -1,1 +1,1 @@
-O curso está bacana ainda, quero ver até onde eu consigo chegar nele
+O curso ainda está bacana, quero ver até onde eu consigo chegar nele
